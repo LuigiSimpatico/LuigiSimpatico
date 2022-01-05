@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LuigiSimpatico
+- 👀 I’m interested in formula 1 racing
+- 🌱 I’m currently learning to code
+- 💞️ I’m looking to collaborate on fintech projects
+- 📫 How to reach me: Lsimpatico@gmail.com
